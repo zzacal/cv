@@ -4,6 +4,10 @@ Senior Software Engineer
 
 Seattle
 
+https://github.com/zzacal
+https://www.linkedin.com/in/zac-zacal
+
+
 ## Senior Software Engineer - Alaska Airlines
 
 Sep 2020 - Present
